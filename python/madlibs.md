@@ -1,4 +1,4 @@
-Winter is so much fun because you can [run] and [walk] in the [fluffy] snow.
+Winter is so much fun because you can [run] and [walk] in the [fluffy] snow. dancing with a taco
 It's nice to [sit] by a warm [fire] and enjoy a cup of [hot] [cocoa] after [runing] in the snow all day.
 
 ---
